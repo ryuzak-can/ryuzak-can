@@ -1,4 +1,4 @@
-## Hola 👋, Soy Joaquín Zamora Ol.
+## Hola 👋, Soy Joaquín Zamora Olivares.
 
 Actualmente soy estudiante de ingeniería civil industrial y del programa del magíster en ciencia de datos, ambos de la Universidad de Chile. Siempre he vivido en Santiago, sin embargo, mis expectativas están ligadas en poseer mi propia granja sustentable, alejado del ruido y alboroto de la ciudad.
 
